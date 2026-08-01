@@ -1,5 +1,5 @@
 # Journey's Greb
-Original fanfiction: [https://archiveofourown.org/works/51901099/chapters/131234806](https://archiveofourown.org/works/51901099/chapters/131234806)
+Original fanfiction: [https://archiveofourown.org/works/51901099](https://archiveofourown.org/works/51901099)
 
 # Journey's Greb - a visual novel
 A historic recollection of the events authored by the locally known Priestly in visual novel form, remaining largely aligned with the original source material.
